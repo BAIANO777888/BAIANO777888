@@ -1,0 +1,3 @@
+- 👋 ola meu nome e BAIANO777888
+- 👀 estou interessado em aprender novas linguagens!
+- 🌱 estou aprendendo aprogamar recentemente a linguagem de javascript!
